@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kagami Koji
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning how to
+- 📫 How to reach me, just try reaching me
